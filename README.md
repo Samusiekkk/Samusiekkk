@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @Samusiekkk
+- 👀 I’m interested in Programming
+- 🌱 I’m currently learning Programming
+- 💞️ I’m looking to collaborate on NOTHING WHAT DO U THINK ?!
+- 📫 How to reach me You cant reach me hehehe
+- 😄 Pronouns: Croissant
+- ⚡ Fun fact: This is a baby faq and this is a ugly motherfuqer
+- Tenge Tenge...
